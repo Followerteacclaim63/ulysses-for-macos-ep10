@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Ulysses for macOS extension with Ulysses for macOS professional Extension: AI assistant & widgets. Featuring AI assistant and widgets, it's the best choice for
 
 
 
